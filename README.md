@@ -1,1 +1,1 @@
-# **[deepakghm GitHub Projects](https://github.com/ghimiredhikura)**
+# **[Click](https://github.com/ghimiredhikura) for my GitHub Projects**
